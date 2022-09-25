@@ -1,3 +1,0 @@
-```
-Create What You Love.
-```
